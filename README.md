@@ -1,1 +1,1 @@
-# Advice-to-Sunday-School-Children-by-Anonymous
+# Advice-to-Sunday-School-Children
